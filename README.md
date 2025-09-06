@@ -14,4 +14,4 @@ This is a place to capture them so I don’t forget and maybe improve them later
 
 ---
 
-🚀 Every big project starts with a small idea.
+🚀 Every big project starts with a small idea.!
