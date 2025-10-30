@@ -15,7 +15,4 @@ This is a place to capture them so I don’t forget and maybe improve them later
 ---
 
 🚀 Every big project starts with a small idea.!
-11111
-22233
-444446666
-555556666
+12111111
