@@ -15,9 +15,4 @@ This is a place to capture them so I don’t forget and maybe improve them later
 ---
 
 🚀 Every big project starts with a small idea.
-dfdsf
-55
-rrttyfrrrrrrr
-sdsd
-hjghjjg
-fsdfsdf
+11111
